@@ -2,7 +2,9 @@
 
 Samuel Garcia Guerrero
 
-Angie Julieth Brito Urquijo 
+Angie Julieth Brito
+
+Bryan Alexander Ortiz G 
 
 # Resumen
 
